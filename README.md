@@ -6,7 +6,7 @@ Collection of documents to use when needing an advice regarding sustainability
 
 - Avoid supermarkets in general, buy there only the things that are not available locally
 
-- Eat less meat, it's more unsustainable and unhealthy to eat meat and meat products every day. 
+- Eat less meat, it is unsustainable and unhealthy to eat meat and meat products every day. 
 
 - Try growing some of your own food. You can find a local organization or small business that keeps local seeds from dying out. For example: [Biovrt](https://www.biovrt.com/)
 
