@@ -34,7 +34,7 @@ Collection of documents to use when needing an advice regarding sustainability
 
 - Know your plastic, not all the plastic is recycleable. Even during recycling part of it ends up being micro-plastic and the recycling procedure itself has a carbon footprint
 
-- Try using eco-friendly resuable plastic wrappers replacement that you can use to store your food. For example (Bee's Wrap)[https://www.beeswrap.com/]
+- Try using eco-friendly resuable plastic wrappers replacement that you can use to store your food. For example [Bee's Wrap](https://www.beeswrap.com/)
 
 ## General shopping
 - When you decide to buy something non-essential, postpone it for 2 weeks and then re-think about if you still need it
