@@ -2,7 +2,7 @@
 Collection of documents to use when needing an advice regarding sustainability 
 
 ## Food
--  Buy local and seasonal food, no need to buy summer food in winter, or if you do have cravings for it buy (or do it yourself) pickled or in naother way preserved version
+-  Buy local and seasonal food, no need to buy summer food in winter, or if you do have cravings for it buy (or do it yourself) pickled or in another way preserved version
 
 - Avoid supermarkets in general, buy there only the things that are not available locally
 
